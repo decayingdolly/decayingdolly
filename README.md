@@ -1,16 +1,22 @@
-## Hi there 👋
+ㅤ  <p align="center">
+    <img width="400" src="https://files.catbox.moe/ovzvgs.png" >
+</p>
 
-<!--
-**decayingdolly/decayingdolly** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+   🐾     . . .⠀⠀꒰ adam raki / will graham ꒱ 
 
-Here are some ideas to get you started:
+<p align="center">
+puppy boy ︵  proudly woke  >⩊<  .ᐟ 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+i love dinosaurs, space, fishing, and dogs :3
+
+<p align="center">
+         dni darkship & 18+   ୨୧   
+
+ <p align="center">
+  i love my kiddo  @Kiezzis and my weird parent  @Kebunbun-xp ^_^
+     
+ <p align="center">
+    <img width="400" src="https://spotify-github-profile.kittinanx.com/api/view?uid=31neovqlgcu5nmy5j4vqisn7iike&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=6d5131&bar_color_cover=false)]"alt=spotify" >
+    
