@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-   🐾     . . .⠀⠀꒰ adam raki / will graham ꒱ 
+   🐾     . . .⠀⠀꒰ aziraphale / adam raki ꒱ 
 
 <p align="center">
 puppy boy ︵  proudly woke  >⩊<  .ᐟ 
